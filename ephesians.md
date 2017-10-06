@@ -15,8 +15,8 @@ I praise the God and father of our Lord Jesus God's chosen
 king. He has blessed us in the heavens with every spiritual
 blessing through Jesus his chosen king.
 
-God chose us to be united with Jesus before the creation of
-the world and to be holy and blameless in his eyes.
+God chose us before the creation of the world
+to be united with Jesus and to be holy and blameless in his eyes.
 In love he destined us to be his adopted children through 
 Jesus his chosen king. It was his pleasure and decision to
 do this, and we praise his amazing grace, which he has so
