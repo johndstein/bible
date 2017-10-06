@@ -27,7 +27,7 @@ forgiven. This was done by the amazing riches of God's
 grace which he has lavished on us with incredible wisdom and
 understanding.
 
-God has revealed to us the mystery -- the awesome plan that he was
+God has revealed to us the mystery -- the awesome plan -- that he was
 pleased to carry out through his chosen king. The plan was to 
 wait until just the right time and then to
 bring everything in heaven and earth together under one ruler, 
