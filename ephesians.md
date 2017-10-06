@@ -3,9 +3,9 @@
 ## Chapter One
 
 This letter is from Paul. God made me an official emisary of
-his chosen king, Jesus.
+his chosen king Jesus.
 
-To the holy people in Ephesus who are faithful to Jesus
+To those in Ephesus who are set apart and faithful to Jesus
 God's chosen king.
 
 We pray that God our father and Jesus God's chosen king will
